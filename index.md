@@ -1,1 +1,0 @@
-Ed Crompton's blog
